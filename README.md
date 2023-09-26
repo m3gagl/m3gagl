@@ -3,6 +3,8 @@
 
 - [m3ga.gl](https://me3ga.gl/)
 - [mega лендинг](https://m3ga.tl/)
+- [ссылка mega](https://m3ga.tl/)
+- [ссылка мега](https://m3ga.tl/)
 
 ## Общие Правила Торговой Площадки MEGA.
 
