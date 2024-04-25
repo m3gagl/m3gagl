@@ -1,7 +1,7 @@
 
 # MEGA DARKMARKET LINK ССЫЛКА НА МЕГУ
 
-- [m3ga.gl](https://me3ga.gl/)
+- [m3ga.gl](https://i.me3qa.gl/)
 - [mega лендинг](https://m3ga.tl/)
 - [ссылка mega](https://m3ga.tl/)
 - [ссылка мега](https://m3ga.tl/)
