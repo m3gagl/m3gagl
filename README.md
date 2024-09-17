@@ -2,9 +2,9 @@
 # MEGA DARKMARKET LINK ССЫЛКА НА МЕГУ
 
 - [m3ga.gl](https://i.m3qa.gl/)
-- [mega лендинг](https://m3ga.tl/)
-- [ссылка mega](https://m3ga.tl/)
-- [ссылка мега](https://m3ga.tl/)
+- [mega лендинг](https://m3ga.tg/)
+- [ссылка mega](https://m3ga.tg/)
+- [ссылка мега](https://m3ga.tg/)
 
 ## Общие Правила Торговой Площадки MEGA.
 
