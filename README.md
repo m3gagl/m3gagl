@@ -1,5 +1,5 @@
 
-# MEGA DARKMARKET LINK ССЫЛКА НА МЕГУ
+# MEGA LINK ССЫЛКА НА МЕГУ
 
 - [m3ga.gl](https://i.m3qa.gl/)
 - [mega лендинг](https://m3ga.tg/)
